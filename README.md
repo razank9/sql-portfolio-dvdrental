@@ -53,5 +53,5 @@ Thanks for checking out my work!
 Feedback welcome — always learning.
 
 — [Rajan Karki]  
-[LinkedIn](https://www.linkedin.com/in/rajan-karki-a787a9179/)
+[LinkedIn](www.linkedin.com/in/rajan-karki-rk9)
 razankarki365@gmail.com
